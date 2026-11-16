@@ -4,6 +4,10 @@ One Yom Kippur, in Jerusalem in 2007, I stayed home. I didn't attend a synagogue
 
 Jerusalem stops for Yom Kippur. Israel stops for Yom Kippur. For those worshipping and observing the day, it's a day of prayer and reflection. For those who don't, it's a day of cycling, because the highways are empty and the country grinds to a halt. Without a single car on the roads, children and adults delight in cycling past the towering skyscrapers of Tel Aviv, on roads that gave me a new appreciation of the gridlock they carry every other day of the year.
 
+The serenity felt in Jerusalem on that day is felt across the country, and it has become a special day for all people: not a holiday only for the practising Jew, and not a day of exclusion for those who choose not to observe it. For all, it's a day of gathering and reflection. A time for friends, family and community to express themselves and manifest their dreams for the year to come.
+
+[Overclaim check: "for all people". About a fifth of Israel's citizens are Arab, and the day is not theirs. "For Jewish Israelis, religious or not" keeps the point and holds up.]
+
 In my own way, this was a rebellion of sorts. A way of testing G-d. If I stayed home, would I have a horrific year?
 
 The year was great for me professionally, financially and romantically. By many measures, my "test of faith" delivered all the things we pray for on the holiest of holy days. The outcome of that day wasn't that I don't believe in G-d. I do. Deeply. But I don't believe I need a quorum, or someone telling me how to pray, to keep that belief alive.
