@@ -13,7 +13,9 @@ Last updated: 15 November 2026.
 
 ## Next task
 
-**Ch 11 parked (15 Nov).** He will not write about niddah from personal experience; Q&A only. Come back when he is ready. Moving to Ch 9.
+**Ch 11 parked (15 Nov).** Niddah: Q&A only, nothing personal. Come back when he is ready.
+
+**Ch 9 in progress.** The Yom Kippur story is in as the opening (15 Nov). Missing: where and roughly when, and what the good year told him.
 
 ## After that
 

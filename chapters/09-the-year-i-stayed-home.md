@@ -1,4 +1,18 @@
-# Chapter 9: The Year I Stayed Home (v0.1)
+# Chapter 9: The Year I Stayed Home (v0.2)
+
+One Yom Kippur, I stayed home. I didn't attend a synagogue service, nor did I break any of the rules of the revered day. I fasted, I slept, I read through the prayer book. But having just moved to a new neighbourhood, and not yet having found a synagogue community of my own, I stayed home.
+
+In my own way, this was a rebellion of sorts. A way of testing G-d. If I stayed home, would I have a horrific year?
+
+The year was great for me professionally, financially and romantically. By many measures, my "test of faith" delivered all the things we pray for on the holiest of holy days. And that's when I realised that I don't love synagogue services.
+
+[Editor: the jump from "the year went well" to "I don't love services" needs one more step. What did the good year tell you?]
+
+I do enjoy the Friday night service, great song and energy filling a room. Much like the Kiddush we make on Friday night, it feels like a cleanse of all the noise of the week. But other services, I struggle to attend or enjoy.
+
+When I guiltily told a friend that I had stayed home for Yom Kippur and was feeling bad about it, they burst into laughter. When they were a teenager, they told me, they had lost their virginity in a synagogue classroom one Yom Kippur. So, all things considered, I felt I had matched the intended tone of the day.
+
+[Revision: show your friend this paragraph before publication.]
 
 As a young child in Brighton, we would go to Middle Street Synagogue. It is shuttered now, but as a listed building it has become an asset that anchors the history of what Jewish Brighton once was, rather than the centre of Jewish life today.
 
@@ -21,6 +35,8 @@ This is why my karpas isn't parsley dipped in salt water. It's a Mediterranean m
 My second much-loved tradition is my fifth cup of wine at the end of the seder. But you'll have to wait for my Haggadah, or ask me, to find out more about that.
 
 ## Questions this room raises
+
+**Can you test G-d?** [Draft for the Q&A: Deuteronomy 6:16 says not to. Malachi 3:10 is the one place G-d invites it, over tithes.]
 
 **Why do Jewish holidays move every year?** The Jewish calendar runs on the moon. A new moon starts a month, and a leap month every few years keeps the festivals in their seasons. Passover is always spring, Rosh Hashanah always autumn, but the dates drift. Back in the day, a new moon was announced by bonfires lit from hilltop to hilltop out of Jerusalem. Now you can see why Jews took to WhatsApp so quickly. Every day starts at nightfall, so a holiday "on the 25th" begins the night of the 24th.
 
