@@ -2,6 +2,8 @@
 
 One Yom Kippur, in Jerusalem in 2007, I stayed home. I didn't attend a synagogue service, nor did I break any of the rules of the revered day. I fasted, I slept, I read through the prayer book. But having just moved to a new neighbourhood, and not yet having found a synagogue community of my own, I stayed home.
 
+Jerusalem stops for Yom Kippur. Israel stops for Yom Kippur. For those worshipping and observing the day, it's a day of prayer and reflection. For those who don't, it's a day of cycling, because the highways are empty and the country grinds to a halt. Without a single car on the roads, children and adults delight in cycling past the towering skyscrapers of Tel Aviv, on roads that gave me a new appreciation of the gridlock they carry every other day of the year.
+
 In my own way, this was a rebellion of sorts. A way of testing G-d. If I stayed home, would I have a horrific year?
 
 The year was great for me professionally, financially and romantically. By many measures, my "test of faith" delivered all the things we pray for on the holiest of holy days. The outcome of that day wasn't that I don't believe in G-d. I do. Deeply. But I don't believe I need a quorum, or someone telling me how to pray, to keep that belief alive.
