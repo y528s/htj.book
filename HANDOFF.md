@@ -11,11 +11,11 @@ Last updated: 15 November 2026.
 
 ## Next task
 
-**Ch 11 wedding section.** He asked for guidance and questions; these were given. Stages to cover: tisch and bedeken, chuppah and ketubah, the glass, yichud, the chairs. Questions waiting on him: his own wedding, the chairs, the glass, a non-Jewish friend at a Jewish wedding.
+**Ch 11: decide whether the wedding stays.** Dictated 15 Nov and placed in the chapter as proofread. He is unsure about including it. Pending question: where does the "never been to a non-Jewish wedding" line lead? It sits in a chapter whose family history (Bubbah, the rabbi at the graveside) is mostly marrying out.
 
 ## After that
 
-1. Ch 11: marrying out (anchored by Bubbah), then two beds and mikveh.
+1. Ch 11: two beds and mikveh.
 2. Ch 4: beat one of "Isn't Zionism just colonialism?" (the anti-Zionist case, fairly stated). Fact-check notes sit under the entry.
 3. Ch 1: rewrite "how this book works" (it still describes the old calendar structure).
 4. Em dash pass on Ch 1 and Ch 8.
