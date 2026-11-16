@@ -11,7 +11,7 @@ Last updated: 15 November 2026.
 
 ## Next task
 
-**Ch 11: decide whether the wedding stays.** Dictated 15 Nov and placed in the chapter as proofread. He is unsure about including it. Pending question: where does the "never been to a non-Jewish wedding" line lead? It sits in a chapter whose family history (Bubbah, the rabbi at the graveside) is mostly marrying out.
+**Ch 11: the Judaic touch at family weddings.** He answered why he has never been to a non-Jewish wedding (15 Nov). Next: one concrete example of the Judaic touch at a cousin's wedding, in his words.
 
 ## After that
 
