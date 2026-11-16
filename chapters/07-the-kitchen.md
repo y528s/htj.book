@@ -6,7 +6,7 @@ I could talk about the kitchen for days. I used to be a food blogger. Every fami
 
 My job at KosherWine wasn't the best I've held, but my dad liked the idea that I was following in the family footsteps, as one of his ancestors had been a wine merchant.
 
-My house is strictly kosher. I still keep kosher, and I have no desire not to. I could see myself becoming vegetarian before I stopped keeping kosher.
+My house is strictly kosher. I still keep kosher, and I have no desire not to.
 
 I don't even know why. Perhaps it goes against my own stance on intellectual honesty in religion. But even as a food enthusiast, I don't feel like keeping kosher has kept me from anything.
 
