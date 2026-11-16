@@ -4,7 +4,7 @@ One Yom Kippur, I stayed home. I didn't attend a synagogue service, nor did I br
 
 In my own way, this was a rebellion of sorts. A way of testing G-d. If I stayed home, would I have a horrific year?
 
-The year was great for me professionally, financially and romantically. By many measures, my "test of faith" delivered all the things we pray for on the holiest of holy days. The outcome of that day wasn't that I don't believe in G-d. I do. Deeply. But I don't believe I need a quorum or prescribed ritual to keep that belief alive.
+The year was great for me professionally, financially and romantically. By many measures, my "test of faith" delivered all the things we pray for on the holiest of holy days. The outcome of that day wasn't that I don't believe in G-d. I do. Deeply. But I don't believe I need a quorum, or someone telling me how to pray, to keep that belief alive.
 
 And that's when I realised that I don't love synagogue services.
 
