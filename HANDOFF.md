@@ -13,7 +13,7 @@ Last updated: 15 November 2026.
 
 ## Next task
 
-**Ch 11: two beds and mikveh.** Then staying in Jewish life. Goal is a full first draft; leave gaps as [Revision] notes.
+**Ch 11 parked (15 Nov).** He will not write about niddah from personal experience; Q&A only. Come back when he is ready. Moving to Ch 9.
 
 ## After that
 
