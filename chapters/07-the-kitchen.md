@@ -1,4 +1,8 @@
-# Chapter 7: The Kitchen (v0.1)
+# Chapter 7: The Kitchen (v0.2)
+
+I could talk about the kitchen for days. I used to be a food blogger. Every family event revolves around food. Cooking for 100 for an open house on Yom Tov isn't something I think twice about. My kosher kitchen has connected me to friends and celebrities alike.
+
+[Revision: the chapter still needs an opening scene. One specific night in this kitchen.]
 
 My job at KosherWine wasn't the best I've held, but my dad liked the idea that I was following in the family footsteps, as one of his ancestors had been a wine merchant.
 

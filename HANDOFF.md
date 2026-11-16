@@ -17,6 +17,8 @@ Last updated: 15 November 2026.
 
 **Ch 9 in progress.** The Yom Kippur story is in as the opening (15 Nov). Placed: Jerusalem, 2007. City-stops paragraph added. Note: the Pesach manuscript in the same chapter also starts in 2007.
 
+**Ch 7 in progress (15 Nov).** Opening paragraph added. Next: the celebrity his kitchen connected him to.
+
 ## After that
 
 2. Ch 4: beat one of "Isn't Zionism just colonialism?" (the anti-Zionist case, fairly stated). Fact-check notes sit under the entry.
