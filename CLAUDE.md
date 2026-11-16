@@ -17,7 +17,8 @@ This repo is the master copy of Yosef Silver's book *How to Jew*. It is a memoir
 
 ## Hard rules
 
-- **Proofread and guide. Do not add words, images or details he did not give.** Dictated material goes in as he said it, cleaned for spelling, grammar and punctuation only. Suggestions go in square brackets or in chat, never silently into his prose.
+- **Edit as needed for flow and clarity. Never invent content: no images, details, facts or scenes he did not give.** Larger rewrites of his prose are flagged in chat.
+- **Pace: get to a full first draft.** Plough on chapter by chapter. Gaps become `[Revision: ...]` notes, not blockers. Revise after the draft is complete.
 - Do not rearrange his dialogue or scenes for effect. If it happened that way, it stays that way.
 - The note in his wallet is private. Never reproduce, paraphrase or ask for it. The refusal can appear on the page.
 - No Second Lebanon War story.

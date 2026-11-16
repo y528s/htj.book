@@ -48,7 +48,9 @@ I have yet to meet a couple that doesn't find the week of Sheva Brachot exhausti
 
 I'm scratching my head to think if I've ever attended a non-Jewish wedding. I honestly don't think I have.
 
-Once my great-grandmother died, we really split into three family units instead of being one massive one. Once I was an adult, I left the UK, and travelling back for weddings of cousins or family members wasn't a priority. Also, my family who did wed, even if they married out, all had a Judaic touch to their celebrations, to honour the faith they are part of.
+After my great-grandmother died, we split into three family units instead of one massive one. As an adult I left the UK, and travelling back for weddings of cousins or family members wasn't a priority. Also, my family who did wed, even if they married out, all had a Judaic touch to their celebrations, to honour the faith they are part of.
+
+[Revision: one cousin's wedding and the Jewish touch they kept.]
 
 [Marriage from the inside: the two beds, the private rhythm of the month, modesty as you lived it.]
 
