@@ -13,6 +13,8 @@ Last updated: 15 November 2026.
 
 ## Next task
 
+**Start of next session:** ask him to choose Ch 12 (thesis and culture thread, the biggest gap) or Ch 7 (kitchen, still thin). Gaps to fill before revising: Ch 12 thesis, Ch 7 length, Ch 4 beat one, Ch 3 big school and first non-Jewish friend, Ch 11 staying.
+
 **Ch 11 parked (15 Nov).** Niddah: Q&A only, nothing personal. Come back when he is ready.
 
 **Ch 9 in progress.** The Yom Kippur story is in as the opening (15 Nov). Placed: Jerusalem, 2007. City-stops paragraph added. Note: the Pesach manuscript in the same chapter also starts in 2007.
