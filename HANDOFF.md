@@ -15,7 +15,7 @@ Last updated: 15 November 2026.
 
 **Ch 11 parked (15 Nov).** Niddah: Q&A only, nothing personal. Come back when he is ready.
 
-**Ch 9 in progress.** The Yom Kippur story is in as the opening (15 Nov). Missing: where and roughly when.
+**Ch 9 in progress.** The Yom Kippur story is in as the opening (15 Nov). Placed: Jerusalem, 2007. Open: what the city was like outside that day. Note: the Pesach manuscript in the same chapter also starts in 2007.
 
 ## After that
 

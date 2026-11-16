@@ -1,6 +1,6 @@
 # Chapter 9: The Year I Stayed Home (v0.2)
 
-One Yom Kippur, I stayed home. I didn't attend a synagogue service, nor did I break any of the rules of the revered day. I fasted, I slept, I read through the prayer book. But having just moved to a new neighbourhood, and not yet having found a synagogue community of my own, I stayed home.
+One Yom Kippur, in Jerusalem in 2007, I stayed home. I didn't attend a synagogue service, nor did I break any of the rules of the revered day. I fasted, I slept, I read through the prayer book. But having just moved to a new neighbourhood, and not yet having found a synagogue community of my own, I stayed home.
 
 In my own way, this was a rebellion of sorts. A way of testing G-d. If I stayed home, would I have a horrific year?
 
